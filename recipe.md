@@ -1,0 +1,1 @@
+Heat milk in a saucepan set over medium-low heat. Whisk briskly with a wire whisk to create foam. Brew espresso and pour into your cup. Pour in milk, holding back the foam with a spoon. Spoon foam over the top.
